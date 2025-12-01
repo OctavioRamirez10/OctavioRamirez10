@@ -45,9 +45,5 @@
 📫 **Contact Me**:  
 📧 [octaarami@gmail.com](mailto:octaarami@gmail.com)  
 📍 Santa Fe, Argentina  
-🌐 *(LinkedIn or Portfolio if available)*
-
----
-
-😄 **Fun Fact**: I love technology almost as much as I enjoy music and creativity!
+🌐 😄 
 
